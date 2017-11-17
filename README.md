@@ -3,4 +3,4 @@
   * ЧЕЛОВЕК
   * ЖИВОТНЫЕ
   * МИФИЧЕСКИЕ ЖИВОТНЫE
-![alt text](http://www.e-learning.pp.ua/wp-content/uploads/2017/07/poloska_w1601_h322.png)
+![alt text](https://s1.hostingkartinok.com/uploads/images/2014/07/dcd0f6bf3668b44eb026989d10814ffd.png)
